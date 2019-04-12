@@ -1,4 +1,4 @@
 # Pirates
 
 ## Videos
-- [Pirate is free](https://youtu.be/pMhfbLRoGEw)
+- [Pirate is free](https://youtu.be/pMhfbLRoGEw) - Best music evah!
